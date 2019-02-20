@@ -1,3 +1,3 @@
-# Points
+# Change U
 
-###### Have you been more knowledgable? Record new knowledge everyday!
+###### To meet the better you!
